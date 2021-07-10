@@ -1,2 +1,2 @@
 # rikakawai-icons
-A gallery full of rika kawai icosn
+A gallery full of rika kawai icons
